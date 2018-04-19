@@ -1,4 +1,3 @@
-# talk-Qingdao-2018
 
 
 **Epigenetic variation in oysters and implications for aquaculture**
